@@ -1,1 +1,1 @@
-***100 Star geldiğinde paylaşırım***
+***100 Star 50 Follow geldiğinde paylaşırım***
