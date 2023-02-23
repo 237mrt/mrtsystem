@@ -1,2 +1,1 @@
-# mrtsystem
-Php tarafında kullandığım yapılar.
+***100 Star geldiğinde paylaşırım***
